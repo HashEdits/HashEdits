@@ -1,17 +1,14 @@
+# Hoi! it me🖖
 
+## Likes💚
+- 🥽 XR
+- 🔌 building embeded gadgets
+- 🔫 Sci-fi/tac shooters
+- 🥁 Rythm games
+- 🎧 Hi-fi audio
 
-
-# Hoi! it me 🖖
-
-## Likes
-- XR
-- building embeded gadgets
-- Sci-fi/tac shooters
-- Rythm games
-- Hi-fi audio
-
-##	socials
-- [𝕏](https://twitter.com/Hash2305)
+##	Socials💬
+-    [𝕏](https://twitter.com/Hash2305)
 - 🕊️ [BlueSky](https://bsky.app/profile/hashe.bsky.social) 
 - 🎥 [YouTube](https://www.youtube.com/@HashEdits) 
 
